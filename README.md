@@ -1,0 +1,6 @@
+- Hi, I’m @SnowsaWasTaken
+- I’m interested in programming and coding
+- I’m currently learning Responsive Web Design and going to college for computer science
+- I’m looking to collaborate on any project that will help me grow as a programmer
+- How to reach me-----------------------------------------------------------------------
+- Discord- @kamara#0001 
